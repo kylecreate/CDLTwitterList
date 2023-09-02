@@ -1,4 +1,4 @@
-Last Updated: 8/31/23
+Last Updated: 9/1/23
 
 ## Retired Players
 
@@ -36,6 +36,16 @@ Capsidal - Twitter
 
 ### Los Angeles Thieves - Twitter
 
+Afro - Twitter
+
+Cammy - Twitter
+
+Ghosty - Twitter
+
+JoeDeceives - Twitter
+
+ShAnE (Coach) - Twitter
+
 ### Miami Heretics (ex-Florida Mutieners) - Twitter
 
 Vikul - Twitter
@@ -61,6 +71,8 @@ Lynz - Twitter
 Owakening - Twitter
 
 Vivid - Twitter
+
+Loony (Head Coach) - Twitter
 
 ### New York Subliners - Twitter
 
