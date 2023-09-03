@@ -2,9 +2,45 @@ Last Updated: 9/1/23
 
 ## Retired Players
 
+Aches - Twitter
+
+Crimsix - Twitter
+
+Formal - Twitter
+
+MethodZ - Twitter
+
+Nadeshot - Twitter
+
+Courage - Twitter
+
+Fwiz - Twitter
+
+Hastr0  - Twitter
+
+Puckett - Twitter
+
+TeePee - Twitter
+
+
 
 ## Organizations
 
+## Casters
+
+Brice - Twitter
+
+Chance - Twitter
+
+Chris Tunn - Twitter
+
+Maven - Twitter
+
+MerK - Twitter
+
+Miles Ross - Twitter
+
+Nameless
 
 ## Teams + Players
 ### Atlanta Faze - Twitter
