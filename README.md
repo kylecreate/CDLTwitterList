@@ -1,4 +1,4 @@
-Last Updated: 9/1/23
+Last Updated: 9/3/23
 
 ## Retired Players
 
