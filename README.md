@@ -1,4 +1,4 @@
-Last Updated: 9/3/23
+Last Updated: 9/5/23
 
 ## Retired Players
 
@@ -64,9 +64,9 @@ SlasheR - Twitter
 
 Capsidal - Twitter
 
-### Las Vegas Legion - Twitter
+### Carolina Royal Ravens (prev. London Royal Ravens) - Twitter
 
-### London Royal Ravens - Twitter
+### Las Vegas Legion - Twitter
 
 ### Los Angeles Guerrillas - Twitter
 
@@ -82,7 +82,7 @@ JoeDeceives - Twitter
 
 ShAnE (Coach) - Twitter
 
-### Miami Heretics (ex-Florida Mutieners) - Twitter
+### Miami Heretics (prev. Florida Mutieners) - Twitter
 
 Vikul - Twitter
 
