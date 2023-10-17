@@ -1,6 +1,6 @@
 Last Updated: 10/16/23
 
-## Retired Players
+## Retired Players/Casters
 
 Aches - [Twitter](https://twitter.com/ACHES)
 
@@ -20,8 +20,15 @@ Puckett - [Twitter](https://twitter.com/MLGPuckett)
 
 TeePee - [Twitter](https://twitter.com/TylerTeeP)
 
-Karma - [Twitter](https://twitter.com/DKarma)
+Censor - Twitter
 
+Muddawg - Twitter
+
+Ogre2 - Twitter
+
+Nubzy - Twitter
+
+MarkyB - Twitter
 
 ## Organizations
 
@@ -52,8 +59,15 @@ Cellium - Twitter
 
 Drazah - Twitter
 
+Crowder (Coach) - Twitter
+
+RJ (Assistant Coach) - Twitter
+
+2Pac ThugLord (Analyst) - Twitter
 
 ### Boston Breach - [Twitter](https://twitter.com/BostonBreach)
+
+Beans - Twitter
 
 Snoopy - Twitter
 
@@ -63,7 +77,15 @@ SlasheR - Twitter
 
 Capsidal - Twitter
 
+Denz (General Manager) - Twitter
+
+Zed (Head Coach) - Twitter
+
+Joshh (Assistant Coach) - Twitter
+
 ### Carolina Royal Ravens (prev. London Royal Ravens) - [Twitter](https://twitter.com/RoyalRavens)
+
+Saintt (Coach) - Twitter
 
 ### Las Vegas Legion - [Twitter](https://twitter.com/LasVegasLegion)
 
@@ -78,6 +100,10 @@ Cammy - Twitter
 Ghosty - Twitter
 
 JoeDeceives - Twitter
+
+Novus (General Manager) - Twitter
+
+JKap (Head Coach) - Twitter
 
 ShAnE (Coach) - Twitter
 
@@ -109,6 +135,8 @@ Vivid - Twitter
 
 Loony (Head Coach) - Twitter
 
+Alexdotzip (Analyst) - Twitter
+
 ### New York Subliners - [Twitter](https://twitter.com/Subliners)
 
 Hydra - Twitter
@@ -118,6 +146,10 @@ KiSMET - Twitter
 Skyz - Twitter
 
 Sib - Twitter
+
+DREAL (Head Coach) - Twitter
+
+Sender (Coach) - Twitter
 
 ### OpTic Texas - [Twitter](https://twitter.com/OpTicTexas)
 
@@ -129,7 +161,21 @@ Kenny - Twitter
 
 Pred - Twitter
 
+Karma (Coach) - [Twitter](https://twitter.com/DKarma)
+
+JP (Analyst) - Twitter
+
 ### Seattle Surge - [Twitter](https://twitter.com/SeattleSurge)
+
+Abuzah - Twitter
+
+Arcitys - Twitter
+
+Huke - Twitter
+
+iLLeY - Twitter
+
+Rambo (Coach) - Twitter
 
 ### Toronto Ultra - [Twitter](https://twitter.com/TorontoUltra)
 
@@ -140,3 +186,7 @@ Insight - Twitter
 Scrappy - Twitter
 
 Envoy - Twitter
+
+Flux (Coach) - Twitter
+
+Joee (Assistant Coach) - Twitter
