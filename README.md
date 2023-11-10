@@ -1,6 +1,6 @@
 Last Updated: 10/16/23
 
-## Retired Players/Casters
+## Retired Players/Casters/Important People
 
 Aches - [Twitter](https://twitter.com/ACHES)
 
@@ -67,8 +67,6 @@ RJ (Assistant Coach) - Twitter
 
 ### Boston Breach - [Twitter](https://twitter.com/BostonBreach)
 
-Beans - Twitter
-
 Snoopy - Twitter
 
 Priestahh - Twitter
@@ -85,7 +83,15 @@ Joshh (Assistant Coach) - Twitter
 
 ### Carolina Royal Ravens (prev. London Royal Ravens) - [Twitter](https://twitter.com/RoyalRavens)
 
-Saintt (Coach) - Twitter
+Clayster - Twitter
+
+GodRx - Twitter
+
+Gwinn - Twitter
+
+ReeaL - Twitter
+
+Saintt (Head Coach/Manager) - Twitter
 
 ### Las Vegas Legion - [Twitter](https://twitter.com/LasVegasLegion)
 
