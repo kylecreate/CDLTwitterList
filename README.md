@@ -95,6 +95,18 @@ Saintt (Head Coach/Manager) - Twitter
 
 ### Las Vegas Legion - [Twitter](https://twitter.com/LasVegasLegion)
 
+Attach - Twitter
+
+Nero - Twitter
+
+Purj - Twitter
+
+Standy - Twitter
+
+Theory (Head Coach) - Twitter
+
+Nagafen (Coach) - Twitter
+
 ### Los Angeles Guerrillas - [Twitter](https://twitter.com/LAGuerrillas)
 
 ### Los Angeles Thieves - [Twitter](https://twitter.com/LAThieves)
