@@ -20,15 +20,15 @@ Puckett - [Twitter](https://twitter.com/MLGPuckett)
 
 TeePee - [Twitter](https://twitter.com/TylerTeeP)
 
-Censor - [Twitter]()
+Censor - [Twitter](https://twitter.com/censor)
 
-Muddawg - [Twitter]()
+Muddawg - [Twitter](https://twitter.com/Muddawg)
 
-Ogre2 - [Twitter]()
+Ogre2 - [Twitter](https://twitter.com/TomRyanOGRE2)
 
-Nubzy - [Twitter]()
+Nubzy - [Twitter](https://twitter.com/JoeyNubzy)
 
-MarkyB - [Twitter]()
+MarkyB - [Twitter](https://twitter.com/MarkyB)
 
 ## Organizations
 
@@ -51,61 +51,63 @@ Nameless - [Twitter](https://twitter.com/NAMELESS)
 ## Teams + Players
 ### Atlanta Faze - [Twitter](https://twitter.com/ATLFaZe)
 
-aBeZy - [Twitter]()
+aBeZy - [Twitter](https://www.twitter.com/aBeZy)
 
-Simp - [Twitter]()
+Simp - [Twitter](https://www.twitter.com/SimpXO)
 
-Cellium - [Twitter]()
+Cellium - [Twitter](https://www.twitter.com/Cellium)
 
-Drazah - [Twitter]()
+Drazah - [Twitter](https://www.twitter.com/Drazah)
 
-Crowder (Coach) - [Twitter]()
+Classic (Sub) - [Twitter](https://twitter.com/Classic)
 
-RJ (Assistant Coach) - [Twitter]()
+Crowder (Coach) - [Twitter](https://twitter.com/JamesCrowder)
 
-2Pac ThugLord (Analyst) - [Twitter]()
+RJ (Assistant Coach) - [Twitter](https://twitter.com/RJTheSlothbear)
+
+2Pac ThugLord (Analyst) - [Twitter](https://twitter.com/x2Pac_ThuGLorD)
 
 ### Boston Breach - [Twitter](https://twitter.com/BostonBreach)
 
-Snoopy - [Twitter]()
+Snoopy - [Twitter](https://twitter.com/Snzopy)
 
-Priestahh - [Twitter]()
+Priestahh - [Twitter](https://twitter.com/Priestahh)
 
-SlasheR - [Twitter]()
+SlasheR - [Twitter](https://twitter.com/SlasheR_AL)
 
-Capsidal - [Twitter]()
+Capsidal - [Twitter](https://twitter.com/Capsidal_)
 
-Denz (General Manager) - [Twitter]()
+Denz (General Manager) - [Twitter](https://twitter.com/DenzJT)
 
-Zed (Head Coach) - [Twitter]()
+Zed (Head Coach) - [Twitter](https://twitter.com/ZachDenyer)
 
-Joshh (Assistant Coach) - [Twitter]()
+Joshh (Assistant Coach) - [Twitter](https://twitter.com/BsportJoshh)
 
 ### Carolina Royal Ravens (prev. London Royal Ravens) - [Twitter](https://twitter.com/RoyalRavens)
 
-Clayster - [Twitter]()
+Clayster - [Twitter](https://twitter.com/Clayster)
 
-GodRx - [Twitter]()
+GodRx - [Twitter](https://twitter.com/GODRX)
 
-Gwinn - [Twitter]()
+Gwinn - [Twitter](https://twitter.com/GwinnWRLD)
 
-ReeaL - [Twitter]()
+ReeaL - [Twitter](https://twitter.com/ReeaLKnxws)
 
-Saintt (Head Coach/Manager) - [Twitter]()
+Saintt (Head Coach/Manager) - [Twitter](https://twitter.com/BrianSaintt)
 
 ### Las Vegas Legion - [Twitter](https://twitter.com/LasVegasLegion)
 
-Attach - [Twitter]()
+Attach - [Twitter](https://twitter.com/Attach)
 
-Nero - [Twitter]()
+Nero - [Twitter](https://twitter.com/NEROPOlSON)
 
-Purj - [Twitter]()
+Purj - [Twitter](https://twitter.com/Purjxng)
 
-Standy - [Twitter]()
+Standy - [Twitter](https://twitter.com/Staaandy)
 
-Theory (Head Coach) - [Twitter]()
+Theory (Head Coach) - [Twitter](https://twitter.com/DMTheory)
 
-Nagafen (Coach) - [Twitter]()
+Nagafen (Coach) - [Twitter](https://twitter.com/Nagafen)
 
 ### Los Angeles Guerrillas - [Twitter](https://twitter.com/LAGuerrillas)
 
