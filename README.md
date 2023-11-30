@@ -20,15 +20,15 @@ Puckett - [Twitter](https://twitter.com/MLGPuckett)
 
 TeePee - [Twitter](https://twitter.com/TylerTeeP)
 
-Censor - Twitter
+Censor - [Twitter]()
 
-Muddawg - Twitter
+Muddawg - [Twitter]()
 
-Ogre2 - Twitter
+Ogre2 - [Twitter]()
 
-Nubzy - Twitter
+Nubzy - [Twitter]()
 
-MarkyB - Twitter
+MarkyB - [Twitter]()
 
 ## Organizations
 
@@ -51,160 +51,174 @@ Nameless - [Twitter](https://twitter.com/NAMELESS)
 ## Teams + Players
 ### Atlanta Faze - [Twitter](https://twitter.com/ATLFaZe)
 
-aBeZy - Twitter
+aBeZy - [Twitter]()
 
-Simp - Twitter
+Simp - [Twitter]()
 
-Cellium - Twitter
+Cellium - [Twitter]()
 
-Drazah - Twitter
+Drazah - [Twitter]()
 
-Crowder (Coach) - Twitter
+Crowder (Coach) - [Twitter]()
 
-RJ (Assistant Coach) - Twitter
+RJ (Assistant Coach) - [Twitter]()
 
-2Pac ThugLord (Analyst) - Twitter
+2Pac ThugLord (Analyst) - [Twitter]()
 
 ### Boston Breach - [Twitter](https://twitter.com/BostonBreach)
 
-Snoopy - Twitter
+Snoopy - [Twitter]()
 
-Priestahh - Twitter
+Priestahh - [Twitter]()
 
-SlasheR - Twitter
+SlasheR - [Twitter]()
 
-Capsidal - Twitter
+Capsidal - [Twitter]()
 
-Denz (General Manager) - Twitter
+Denz (General Manager) - [Twitter]()
 
-Zed (Head Coach) - Twitter
+Zed (Head Coach) - [Twitter]()
 
-Joshh (Assistant Coach) - Twitter
+Joshh (Assistant Coach) - [Twitter]()
 
 ### Carolina Royal Ravens (prev. London Royal Ravens) - [Twitter](https://twitter.com/RoyalRavens)
 
-Clayster - Twitter
+Clayster - [Twitter]()
 
-GodRx - Twitter
+GodRx - [Twitter]()
 
-Gwinn - Twitter
+Gwinn - [Twitter]()
 
-ReeaL - Twitter
+ReeaL - [Twitter]()
 
-Saintt (Head Coach/Manager) - Twitter
+Saintt (Head Coach/Manager) - [Twitter]()
 
 ### Las Vegas Legion - [Twitter](https://twitter.com/LasVegasLegion)
 
-Attach - Twitter
+Attach - [Twitter]()
 
-Nero - Twitter
+Nero - [Twitter]()
 
-Purj - Twitter
+Purj - [Twitter]()
 
-Standy - Twitter
+Standy - [Twitter]()
 
-Theory (Head Coach) - Twitter
+Theory (Head Coach) - [Twitter]()
 
-Nagafen (Coach) - Twitter
+Nagafen (Coach) - [Twitter]()
 
 ### Los Angeles Guerrillas - [Twitter](https://twitter.com/LAGuerrillas)
 
+Assault - [Twitter]()
+
+Diamondcon - [Twitter]()
+
+Estreal - [Twitter]()
+
+Fame - [Twitter]()
+
+Veohz (Head Coach) - [Twitter]()
+
+Arian (Assistant Coach) - [Twitter]()
+
+Cheek (Analyst) - [Twitter]()
+
 ### Los Angeles Thieves - [Twitter](https://twitter.com/LAThieves)
 
-Afro - Twitter
+Afro - [Twitter]()
 
-Cammy - Twitter
+Cammy - [Twitter]()
 
-Ghosty - Twitter
+Ghosty - [Twitter]()
 
-JoeDeceives - Twitter
+JoeDeceives - [Twitter]()
 
-Novus (General Manager) - Twitter
+Novus (General Manager) - [Twitter]()
 
-JKap (Head Coach) - Twitter
+JKap (Head Coach) - [Twitter]()
 
-ShAnE (Coach) - Twitter
+ShAnE (Coach) - [Twitter]()
 
 ### Miami Heretics (prev. Florida Mutieners) - [Twitter](https://twitter.com/MiamiHeretics)
 
-Vikul - Twitter
+Vikul - [Twitter]()
 
-JurNii - Twitter
+JurNii - [Twitter]()
 
-Lucky - Twitter
+Lucky - [Twitter]()
 
-MettalZ - Twitter
+MettalZ - [Twitter]()
 
-EriKBoom (Sub) - Twitter
+EriKBoom (Sub) - [Twitter]()
 
-Noel (Head Coach) - Twitter
+Noel (Head Coach) - [Twitter]()
 
-MethodZ (Coach) - Twitter
+MethodZ (Coach) - [Twitter]()
 
 ### Minnesota Rokkr - [Twitter](https://twitter.com/ROKKR)
 
-Accuracy - Twitter
+Accuracy - [Twitter]()
 
-Lynz - Twitter
+Lynz - [Twitter]()
 
-Owakening - Twitter
+Owakening - [Twitter]()
 
-Vivid - Twitter
+Vivid - [Twitter]()
 
-Loony (Head Coach) - Twitter
+Loony (Head Coach) - [Twitter]()
 
-Alexdotzip (Analyst) - Twitter
+Alexdotzip (Analyst) - [Twitter]()
 
 ### New York Subliners - [Twitter](https://twitter.com/Subliners)
 
-Hydra - Twitter
+Hydra - [Twitter]()
 
-KiSMET - Twitter
+KiSMET - [Twitter]()
 
-Skyz - Twitter
+Skyz - [Twitter]()
 
-Sib - Twitter
+Sib - [Twitter]()
 
-DREAL (Head Coach) - Twitter
+DREAL (Head Coach) - [Twitter]()
 
-Sender (Coach) - Twitter
+Sender (Coach) - [Twitter]()
 
 ### OpTic Texas - [Twitter](https://twitter.com/OpTicTexas)
 
-Shotzzy - Twitter
+Shotzzy - [Twitter]()
 
-Dashy - Twitter
+Dashy - [Twitter]()
 
-Kenny - Twitter
+Kenny - [Twitter]()
 
-Pred - Twitter
+Pred - [Twitter]()
 
 Karma (Coach) - [Twitter](https://twitter.com/DKarma)
 
-JP (Analyst) - Twitter
+JP (Analyst) - [Twitter]()
 
 ### Seattle Surge - [Twitter](https://twitter.com/SeattleSurge)
 
-Abuzah - Twitter
+Abuzah - [Twitter]()
 
-Arcitys - Twitter
+Arcitys - [Twitter]()
 
-Huke - Twitter
+Huke - [Twitter]()
 
-iLLeY - Twitter
+iLLeY - [Twitter]()
 
-Rambo (Coach) - Twitter
+Rambo (Coach) - [Twitter]()
 
 ### Toronto Ultra - [Twitter](https://twitter.com/TorontoUltra)
 
-CleanX - Twitter
+CleanX - [Twitter]()
 
-Insight - Twitter
+Insight - [Twitter]()
 
-Scrappy - Twitter
+Scrappy - [Twitter]()
 
-Envoy - Twitter
+Envoy - [Twitter]()
 
-Flux (Coach) - Twitter
+Flux (Coach) - [Twitter]()
 
-Joee (Assistant Coach) - Twitter
+Joee (Assistant Coach) - [Twitter]()
