@@ -1,4 +1,4 @@
-Last Updated: 10/16/23
+Last Updated: 11/30/23
 
 ## Retired Players/Casters/Important People
 
