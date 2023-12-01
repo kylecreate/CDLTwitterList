@@ -1,5 +1,7 @@
 Last Updated: 11/30/23
 
+[Twitter List Link](https://twitter.com/i/lists/1463200265335717890)
+
 ## Retired Players/Casters/Important People
 
 Aches - [Twitter](https://twitter.com/ACHES)
@@ -26,11 +28,25 @@ Muddawg - [Twitter](https://twitter.com/Muddawg)
 
 Ogre2 - [Twitter](https://twitter.com/TomRyanOGRE2)
 
-Nubzy - [Twitter](https://twitter.com/JoeyNubzy)
-
 MarkyB - [Twitter](https://twitter.com/MarkyB)
 
+TacticalRab - [Twitter](https://twitter.com/TacticalRab)
+
+Zooma - [Twitter](https://twitter.com/ZooMaa)
+
+EasyMac (Stats) - [Twitter](https://twitter.com/Its_EasyMac)
+
+Ricky - [Twitter](https://www.twitter.com/Ricky)
+
+Revan - [Twitter](https://twitter.com/RevanJB)
+
 ## Organizations
+
+TheFlank (Podcast) - [Twitter](https://twitter.com/TheFlank)
+
+GGBreakingPoint - [Twitter](https://twitter.com/GGBreakingPoint)
+
+CODFandom - [Twitter](https://twitter.com/CODFandom)
 
 ## Casters
 
@@ -111,116 +127,120 @@ Nagafen (Coach) - [Twitter](https://twitter.com/Nagafen)
 
 ### Los Angeles Guerrillas - [Twitter](https://twitter.com/LAGuerrillas)
 
-Assault - [Twitter]()
+Assault - [Twitter](https://twitter.com/Assault)
 
-Diamondcon - [Twitter]()
+Diamondcon - [Twitter](https://twitter.com/Diamondcon_)
 
-Estreal - [Twitter]()
+Estreal - [Twitter](https://twitter.com/EstreaI)
 
-Fame - [Twitter]()
+Fame - [Twitter](https://twitter.com/Fame_mK2)
 
-Veohz (Head Coach) - [Twitter]()
+Veohz (Head Coach) - [Twitter](https://twitter.com/Veohhz)
 
-Arian (Assistant Coach) - [Twitter]()
+Arian (Assistant Coach) - [Twitter](https://twitter.com/Chitsaz_)
 
-Cheek (Analyst) - [Twitter]()
+Cheek (Analyst) - [Twitter](https://twitter.com/itsCheek_)
 
 ### Los Angeles Thieves - [Twitter](https://twitter.com/LAThieves)
 
-Afro - [Twitter]()
+Afro - [Twitter](https://twitter.com/AstrosInMyAfro)
 
-Cammy - [Twitter]()
+Cammy - [Twitter](https://twitter.com/CammyMVP)
 
-Ghosty - [Twitter]()
+Ghosty - [Twitter](https://twitter.com/oDanGhosty)
 
-JoeDeceives - [Twitter]()
+JoeDeceives - [Twitter](https://twitter.com/JoeDeceives)
 
-Novus (General Manager) - [Twitter]()
+Novus (General Manager) - [Twitter](https://twitter.com/NovusVita_gg)
 
-JKap (Head Coach) - [Twitter]()
+JKap (Head Coach) - [Twitter](https://twitter.com/JKap415)
 
-ShAnE (Coach) - [Twitter]()
+ShAnE (Coach) - [Twitter](https://twitter.com/SHANEE)
 
 ### Miami Heretics (prev. Florida Mutieners) - [Twitter](https://twitter.com/MiamiHeretics)
 
-Vikul - [Twitter]()
+Vikul - [Twitter](https://twitter.com/VikulJM)
 
-JurNii - [Twitter]()
+Lucky - [Twitter](https://twitter.com/Luckyy7_)
 
-Lucky - [Twitter]()
+MettalZ - [Twitter](https://twitter.com/MeTTalZz)
 
-MettalZ - [Twitter]()
+EriKBoom - [Twitter](https://twitter.com/EriKBooM_)
 
-EriKBoom (Sub) - [Twitter]()
+JurNii (Sub) - [Twitter](https://twitter.com/JurNiii)
 
-Noel (Head Coach) - [Twitter]()
+Noel (Head Coach) - [Twitter](https://twitter.com/GarberiNoel)
 
-MethodZ (Coach) - [Twitter]()
+MethodZ (Coach) - [Twitter](https://twitter.com/MethodZSick)
 
 ### Minnesota Rokkr - [Twitter](https://twitter.com/ROKKR)
 
-Accuracy - [Twitter]()
+Accuracy - [Twitter](https://twitter.com/AccuracyLA)
 
-Lynz - [Twitter]()
+Lynz - [Twitter](https://twitter.com/Lyynnz7)
 
-Owakening - [Twitter]()
+Owakening - [Twitter](https://twitter.com/Owakening)
 
-Vivid - [Twitter]()
+Vivid - [Twitter](https://twitter.com/VividTheWarrior)
 
-Loony (Head Coach) - [Twitter]()
+REPPIN (Head of Esports) - [Twitter](https://twitter.com/REPPINjt)
 
-Alexdotzip (Analyst) - [Twitter]()
+Nubzy (Team Op Cordinator) - [Twitter](https://twitter.com/JoeyNubzy)
+
+Loony (Head Coach) - [Twitter](https://twitter.com/Loony)
+
+Alexdotzip (Analyst) - [Twitter](https://twitter.com/alexdotzip)
 
 ### New York Subliners - [Twitter](https://twitter.com/Subliners)
 
-Hydra - [Twitter]()
+Hydra - [Twitter](https://twitter.com/HyDrAnml)
 
-KiSMET - [Twitter]()
+KiSMET - [Twitter](https://twitter.com/KiSMET6_)
 
-Skyz - [Twitter]()
+Skyz - [Twitter](https://twitter.com/CesarSkyz)
 
-Sib - [Twitter]()
+Sib - [Twitter](https://twitter.com/SibDMDL)
 
-DREAL (Head Coach) - [Twitter]()
+DREAL (Head Coach) - [Twitter](https://twitter.com/DREAL_JE)
 
-Sender (Coach) - [Twitter]()
+Sender (Coach) - [Twitter](https://twitter.com/Sender)
 
 ### OpTic Texas - [Twitter](https://twitter.com/OpTicTexas)
 
-Shotzzy - [Twitter]()
+Shotzzy - [Twitter](https://twitter.com/Shotzzy)
 
-Dashy - [Twitter]()
+Dashy - [Twitter](https://twitter.com/DashySZN )
 
-Kenny - [Twitter]()
+Kenny - [Twitter](https://twitter.com/Kuavo)
 
-Pred - [Twitter]()
+Pred - [Twitter](https://twitter.com/Pred)
 
 Karma (Coach) - [Twitter](https://twitter.com/DKarma)
 
-JP (Analyst) - [Twitter]()
+JP (Analyst) - [Twitter](https://twitter.com/JPKrez)
 
 ### Seattle Surge - [Twitter](https://twitter.com/SeattleSurge)
 
-Abuzah - [Twitter]()
+Abuzah - [Twitter](https://twitter.com/abuzaaah)
 
-Arcitys - [Twitter]()
+Arcitys - [Twitter](https://twitter.com/Arcitys)
 
-Huke - [Twitter]()
+Huke - [Twitter](https://twitter.com/Huke)
 
-iLLeY - [Twitter]()
+iLLeY - [Twitter](https://twitter.com/iLLeYYY)
 
-Rambo (Coach) - [Twitter]()
+Rambo (Coach) - [Twitter](https://twitter.com/ramboray)
 
 ### Toronto Ultra - [Twitter](https://twitter.com/TorontoUltra)
 
-CleanX - [Twitter]()
+CleanX - [Twitter](https://twitter.com/CleanX)
 
-Insight - [Twitter]()
+Insight - [Twitter](https://twitter.com/InsightGawd)
 
-Scrappy - [Twitter]()
+Scrappy - [Twitter](https://twitter.com/ScrappyNJ)
 
-Envoy - [Twitter]()
+Envoy - [Twitter](https://twitter.com/DylanEnvoy)
 
-Flux (Coach) - [Twitter]()
+Flux (Coach) - [Twitter](https://twitter.com/RBOFLX)
 
-Joee (Assistant Coach) - [Twitter]()
+Joee (Assistant Coach) - [Twitter](https://twitter.com/Joee_COD)
