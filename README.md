@@ -135,6 +135,8 @@ Estreal - [Twitter](https://twitter.com/EstreaI)
 
 Fame - [Twitter](https://twitter.com/Fame_mK2)
 
+Flames (Sub) - [Twitter](https://twitter.com/Flames4K)
+
 Veohz (Head Coach) - [Twitter](https://twitter.com/Veohhz)
 
 Arian (Assistant Coach) - [Twitter](https://twitter.com/Chitsaz_)
