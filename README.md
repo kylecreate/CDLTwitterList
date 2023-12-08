@@ -123,7 +123,7 @@ Standy - [Twitter](https://twitter.com/Staaandy)
 
 Theory (Head Coach) - [Twitter](https://twitter.com/DMTheory)
 
-Nagafen (Coach) - [Twitter](https://twitter.com/Nagafen)
+Fenix (Coach) - [Twitter](https://twitter.com/FenixSRS)
 
 ### Los Angeles Guerrillas - [Twitter](https://twitter.com/LAGuerrillas)
 
@@ -184,8 +184,6 @@ Owakening - [Twitter](https://twitter.com/Owakening)
 Vivid - [Twitter](https://twitter.com/VividTheWarrior)
 
 REPPIN (Head of Esports) - [Twitter](https://twitter.com/REPPINjt)
-
-Nubzy (Team Op Cordinator) - [Twitter](https://twitter.com/JoeyNubzy)
 
 Loony (Head Coach) - [Twitter](https://twitter.com/Loony)
 
