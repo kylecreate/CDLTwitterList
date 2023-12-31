@@ -1,4 +1,4 @@
-Last Updated: 12/8/23
+Last Updated: 12/31/23
 
 [Twitter List Link](https://twitter.com/i/lists/1463200265335717890)
 
@@ -17,8 +17,6 @@ Nadeshot - [Twitter](https://twitter.com/Nadeshot)
 Courage - [Twitter](https://twitter.com/CouRageJD)
 
 Fwiz - [Twitter](https://twitter.com/Fwiz)
-
-Puckett - [Twitter](https://twitter.com/MLGPuckett)
 
 TeePee - [Twitter](https://twitter.com/TylerTeeP)
 
@@ -50,11 +48,15 @@ CODFandom - [Twitter](https://twitter.com/CODFandom)
 
 ## Casters
 
+AllyCxt - [Twitter](https://twitter.com/Allycxt)
+
 Brice - [Twitter](https://twitter.com/Bricetacular)
 
 Chance - [Twitter](https://twitter.com/ChanceCasts)
 
 Chris Tunn - [Twitter](https://twitter.com/CJTunn)
+
+iHoldShift - [Twitter](https://twitter.com/IHOLDSHIFT)
 
 Maven - [Twitter](https://twitter.com/Maven)
 
@@ -63,6 +65,10 @@ MerK - [Twitter](https://twitter.com/JoeDeLuca)
 Miles Ross - [Twitter](https://twitter.com/MilesTheRoss)
 
 Nameless - [Twitter](https://twitter.com/NAMELESS)
+
+Puckett - [Twitter](https://twitter.com/MLGPuckett)
+
+StuDyy - [Twitter](https://twitter.com/JeremyStuD)
 
 ## Teams + Players
 ### Atlanta Faze - [Twitter](https://twitter.com/ATLFaZe)
