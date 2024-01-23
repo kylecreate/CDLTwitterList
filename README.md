@@ -1,4 +1,4 @@
-Last Updated: 12/31/23
+Last Updated: 1/22/23
 
 [Twitter List Link](https://twitter.com/i/lists/1463200265335717890)
 
@@ -37,6 +37,8 @@ EasyMac (Stats) - [Twitter](https://twitter.com/Its_EasyMac)
 Ricky - [Twitter](https://www.twitter.com/Ricky)
 
 Revan - [Twitter](https://twitter.com/RevanJB)
+
+GodRx - [Twitter](https://twitter.com/GODRX)
 
 ## Organizations
 
@@ -109,11 +111,11 @@ Joshh (Assistant Coach) - [Twitter](https://twitter.com/BsportJoshh)
 
 Clayster - [Twitter](https://twitter.com/Clayster)
 
-GodRx - [Twitter](https://twitter.com/GODRX)
-
 Gwinn - [Twitter](https://twitter.com/GwinnWRLD)
 
 ReeaL - [Twitter](https://twitter.com/ReeaLKnxws)
+
+FeLo - [Twitter](https://twitter.com/FeLo)
 
 Saintt (Head Coach/Manager) - [Twitter](https://twitter.com/BrianSaintt)
 
