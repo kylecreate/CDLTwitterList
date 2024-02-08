@@ -93,13 +93,13 @@ RJ (Assistant Coach) - [Twitter](https://twitter.com/RJTheSlothbear)
 
 ### Boston Breach - [Twitter](https://twitter.com/BostonBreach)
 
+Asim - [Twitter](https://www.twitter.com/GstaAsim)
+
 Snoopy - [Twitter](https://twitter.com/Snzopy)
 
 Priestahh - [Twitter](https://twitter.com/Priestahh)
 
 SlasheR - [Twitter](https://twitter.com/SlasheR_AL)
-
-Capsidal - [Twitter](https://twitter.com/Capsidal_)
 
 Denz (General Manager) - [Twitter](https://twitter.com/DenzJT)
 
@@ -113,9 +113,9 @@ Clayster - [Twitter](https://twitter.com/Clayster)
 
 Gwinn - [Twitter](https://twitter.com/GwinnWRLD)
 
-ReeaL - [Twitter](https://twitter.com/ReeaLKnxws)
-
 FeLo - [Twitter](https://twitter.com/FeLo)
+
+TJHaLy (Sub) - [Twitter](https://twitter.com/TJHaLy)
 
 Saintt (Head Coach/Manager) - [Twitter](https://twitter.com/BrianSaintt)
 
@@ -155,11 +155,13 @@ Cheek (Analyst) - [Twitter](https://twitter.com/itsCheek_)
 
 Afro - [Twitter](https://twitter.com/AstrosInMyAfro)
 
-Cammy - [Twitter](https://twitter.com/CammyMVP)
-
 Ghosty - [Twitter](https://twitter.com/oDanGhosty)
 
-JoeDeceives - [Twitter](https://twitter.com/JoeDeceives)
+Kremp - [Twitter](https://twitter.com/KrempV)
+
+Nastiee - [Twitter](https://twitter.com/Nastiee_)
+
+JoeDeceives (Sub) - [Twitter](https://twitter.com/JoeDeceives)
 
 Novus (General Manager) - [Twitter](https://twitter.com/NovusVita_gg)
 
@@ -175,9 +177,9 @@ Lucky - [Twitter](https://twitter.com/Luckyy7_)
 
 MettalZ - [Twitter](https://twitter.com/MeTTalZz)
 
-EriKBoom - [Twitter](https://twitter.com/EriKBooM_)
+JurNii - [Twitter](https://twitter.com/JurNiii)
 
-JurNii (Sub) - [Twitter](https://twitter.com/JurNiii)
+EriKBoom (Sub) - [Twitter](https://twitter.com/EriKBooM_)
 
 Noel (Head Coach) - [Twitter](https://twitter.com/GarberiNoel)
 
